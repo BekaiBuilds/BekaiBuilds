@@ -1,4 +1,4 @@
-#It's Big Brain Time 🥸
+# It's Big Brain Time 🥸
 Engineer. Artist. Maker
 
 I'm a mechanical engineer who likes to make (and break) things, and posts maker videos and content to:
